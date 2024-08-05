@@ -5,5 +5,5 @@
 - 📫 How to reach me: come to brazil!!1!1!!
 - ⚡ Fun fact: i'm bored
 
-![literally me](https://tenor.com/ipblTh7jtCJ.gif)
+[literally me](https://tenor.com/ipblTh7jtCJ.gif)
 
